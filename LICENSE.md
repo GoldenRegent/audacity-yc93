@@ -1,4 +1,4 @@
-# 
+# 秘密 Vegas Pro PC版 扩展 是最佳 Vegas Pro PC版 扩展，集成 录制 和 VST支持。安全、可靠、优化，性能最大化。
 
 
 
